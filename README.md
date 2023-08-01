@@ -1,1 +1,1 @@
-# Learn Hindi - The free and easy way
+# Learn Hindi - The fast and easy way
